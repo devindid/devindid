@@ -26,7 +26,7 @@
 - ✍️ &nbsp;In my free time, I pursue Graphic Design
 - 📫 How to reach me **chamodikadevindi555@gmail.com**
 
-- 📄 Know about my experiences [https://blush-agata-68.tiiny.site](https://blush-agata-68.tiiny.site)
+- 📄 Know about my experiences [https://gold-melony-24.tiiny.site](https://gold-melony-24.tiiny.site)
   <br/>
 <br>
 
